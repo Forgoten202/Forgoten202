@@ -1,6 +1,6 @@
-salve, eu sou o Davi, estudante do 1°TDSB 😒
+salve, eu sou o Davi, estudante do 1°TDSB 😒![Uploading CachorroNãoSeiSeComentoGIF.gif…]()
 
--![Uploading CachorroNãoSeiSeComentoGIF.gif…]()
+-
 
 -Meu nome é **Davi Lucas**
 
