@@ -1,12 +1,12 @@
-salve, eu sou o Davi, estudante do 1°TDSB 😒![Uploading DogFunnyGIF.gif…]()
+salve, eu sou o Davi, estudante do 1°TDSB 😒 ![Uploading DogFunnyGIF.gif…]()
 
 
 -
 
--Meu nome é **Davi Lucas**
+- Meu nome é **Davi Lucas**
 
--Estudante do **Loureiro Fernandes**
+- Estudante do **Loureiro Fernandes**
 
--Tenho 15 anos, meu aniversário é dia **05/11**
+- Tenho 15 anos, meu aniversário é dia **05/11**
 
--Atualmente estou trabalhando em **cursos de programação**.
+- Atualmente estou trabalhando em **cursos de programação**.
