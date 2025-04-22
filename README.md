@@ -1,4 +1,5 @@
-salve, eu sou o Davi, estudante do 1°TDSB 😒![Uploading CachorroNãoSeiSeComentoGIF.gif…]()
+salve, eu sou o Davi, estudante do 1°TDSB 😒![Uploading DogFunnyGIF.gif…]()
+
 
 -
 
